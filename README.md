@@ -1,4 +1,4 @@
-# Dating Apps Reviews 2017-2022 all regions
+# Dating Apps Reviews 2017-2022 (all regions)
 
 **Description:**
 
